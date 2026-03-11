@@ -89,4 +89,4 @@ Stay connected with me:
 
 [LinkedIn](https://www.linkedin.com/in/ayushe-nagpal/): /ayushe-nagpal
 
-[Instagram](https://www.instagram.com/lifewayushe/): @lifewayushe
+[Instagram](https://www.instagram.com/lifewayushe/): @lifewithayushe
